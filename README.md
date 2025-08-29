@@ -1,1 +1,1 @@
-# MGT-602---Entreprenurship
+# MGT-602-Entreprenurship
